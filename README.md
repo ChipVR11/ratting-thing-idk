@@ -1,2 +1,2 @@
 # ratting-thing-idk
-ratting software
+USE LEGALLY 
